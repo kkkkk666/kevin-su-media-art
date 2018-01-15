@@ -1,1 +1,0 @@
-# kevin-su-media-art
